@@ -1,1 +1,0 @@
-# Desafio-Cibersecurity-Ransomware-DIO
